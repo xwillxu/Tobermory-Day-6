@@ -1,2 +1,2 @@
 # Tobermory-Day-6
-Today we went to flowerpot island which is in the middle of georgian bay / lake huron. Before on tuesday we got the printed version of the tickets. On the tickets where information that you will see later. We used the tickets to get on to the blue heron 9 boat at 10:05. We first checked out the shipwrecks. One of them was a 120ft long. Then after about 5 min. Then we took of for flowerpot island.
+closed down
